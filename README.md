@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Danish (Janu)
+# 👋 Hi, I'm Danish Faizi
 
 ### 🚀 CSE Undergraduate at IIT Patna | Aspiring Software Engineer | Full Stack Developer
 
